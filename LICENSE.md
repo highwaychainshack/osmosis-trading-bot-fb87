@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with custom osmosis trading bot Plugin | blockchain-scanning + cross-chain-arbitrage, the #1 osmosis trading bot. Includes blockchain-scanning and
 
 
 
